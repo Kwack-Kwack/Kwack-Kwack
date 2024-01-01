@@ -1,4 +1,4 @@
-# Hey, I'm Blair. But you probably know me as Kwack.
+# Hey, I'm Blair, but you probably know me as Kwack.
 
 🖥️ You'll see me around the development space of TORN a lot, working on any projects I can get my hands on.
 
