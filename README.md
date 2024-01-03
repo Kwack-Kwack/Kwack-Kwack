@@ -28,3 +28,5 @@ My work out in the real world:
 
 
 ![TORN.com Signature for Kwack [2190604]](https://www.torn.com/sigs/3_2190604.png)
+
+![Forum Signature for Kwack [2190604]](https://i.imgur.com/xbw52DO.gif)
